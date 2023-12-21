@@ -1,0 +1,1 @@
+# strukutdata7G211220076
